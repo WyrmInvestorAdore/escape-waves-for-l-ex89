@@ -1,4 +1,4 @@
-#  
+#  automatic Script for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring one-hit kill and teleport. Safe and
 
 
 
